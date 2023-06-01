@@ -1,4 +1,4 @@
-<h1>ᴍʏ ʟɪꜱᴛ ᴏꜰ ᴜɴʙʟᴏᴄᴋᴇᴅ ɢᴀᴍᴇꜱ</h1>
+ color purple <h1>ᴍʏ ʟɪꜱᴛ ᴏꜰ ᴜɴʙʟᴏᴄᴋᴇᴅ ɢᴀᴍᴇꜱ</h1>
 
 https://exploits.pages.dev/
 

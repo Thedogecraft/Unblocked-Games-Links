@@ -2,6 +2,8 @@
 
 https://exploits.pages.dev/
 
+https://derpmandev.uk.ms/unblocked-games/
+
 https://55gms.me/
 
 https://mathlearning.top/

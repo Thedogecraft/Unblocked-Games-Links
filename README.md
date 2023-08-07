@@ -2,6 +2,12 @@
 
 https://exploits.pages.dev/
 
+https://whitespider.pages.dev/
+
+https://whitespider.cf/
+
+https://wsug.gq/
+
 https://derpmandev.uk.ms/unblocked-games/
 
 https://55gms.me/

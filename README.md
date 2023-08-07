@@ -8,9 +8,9 @@ https://mgalternative.github.io/
 
 https://mathgames67.github.io/
 
-mathgames68.github.io
+https://mathgames68.github.io/
 
-mathgames69.github.io
+https://mathgames69.github.io/
 
 https://whitespider.pages.dev/
 

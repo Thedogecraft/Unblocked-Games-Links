@@ -2,6 +2,16 @@
 
 https://exploits.pages.dev/
 
+https://othermgwebsite.github.io/
+
+https://mgalternative.github.io/
+
+https://mathgames67.github.io/
+
+mathgames68.github.io
+
+mathgames69.github.io
+
 https://whitespider.pages.dev/
 
 https://whitespider.cf/

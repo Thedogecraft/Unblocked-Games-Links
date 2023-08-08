@@ -2,6 +2,24 @@
 
 https://exploits.pages.dev/
 
+https://8lat.github.io/orbitgames/
+
+https://deus-scissuras.github.io/RailinGames.github.io/
+
+https://deus-scissuras.github.io/unblocked-x/
+
+https://nate-games.github.io/
+
+https://nate-games.vercel.app/
+
+https://learn-science.vercel.app/
+
+https://math-edu.vercel.app/
+
+https://cf-nate.pages.dev/
+
+https://picklekid31.github.io/GBA-unblocked-games/
+
 https://othermgwebsite.github.io/
 
 https://mgalternative.github.io/

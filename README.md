@@ -2,8 +2,6 @@
 
 https://exploits.pages.dev/
 
-https://deus-scissuras.github.io/SRbits-UNblocked-games/
-
 https://othermgwebsite.github.io/
 
 https://mgalternative.github.io/

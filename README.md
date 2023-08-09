@@ -1,5 +1,29 @@
  ᴍʏ ʟɪꜱᴛ ᴏꜰ ᴜɴʙʟᴏᴄᴋᴇᴅ ɢᴀᴍᴇꜱ</h1>
 
+https://nativegames.netlify.app
+
+https://coolgames.vercel.app
+
+https://coolgames1.vercel.app
+
+https://coolgames2.vercel.app
+
+https://coolgames3.vercel.app
+
+https://coolgames4.vercel.app
+
+https://coolgames5.vercel.app
+
+https://840p.ml
+
+https://nativegames.net
+
+https://undifined.tk
+
+https://sites.google.com/view/bingforschools
+
+https://nativegms.netlify.app
+
 https://exploits.pages.dev/
 
 https://8lat.github.io/orbitgames/
